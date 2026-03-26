@@ -4,4 +4,4 @@
 * 🎓 studying Computer Engineering @ Georgia Tech
 
 Feel free to reach out to vasanthaggala@gatech.edu for anything; always love to chat!
-linkedin.com/in/vasanth-aggala
+\nlinkedin.com/in/vasanth-aggala
